@@ -2,7 +2,10 @@
 hatsune miku is cringe audio format
 trust me this is peak
 
-
+[MANGOS TIKTOK VERSION (PHONK).mp3](https://github.com/user-attachments/files/23399449/MANGOS.TIKTOK.VERSION.PHONK.mp3)
+mp3:1,28 MB (1.348.682 bytes)
+HMICA:41,3 MB (43.391.991 bytes)
+HMICA7:11,2 MB
 
 
 
