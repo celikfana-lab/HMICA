@@ -1,4 +1,7 @@
 # HMICA
+
+<img width="517" height="236" alt="image" src="https://github.com/user-attachments/assets/8004953a-1b3d-4633-9965-e66c3b5e150f" />
+
 hatsune miku is cringe audio format
 trust me this is peak
 
