@@ -1,6 +1,8 @@
 # HMICA
 
 <img width="517" height="236" alt="image" src="https://github.com/user-attachments/assets/8004953a-1b3d-4633-9965-e66c3b5e150f" />
+mascot of hmic: MIG++U
+<img width="819" height="460" alt="Naamloos" src="https://github.com/user-attachments/assets/6c3d7b5a-358a-44d3-ae99-2d89caa0400c" />
 
 hatsune miku is cringe audio format
 trust me this is peak
